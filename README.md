@@ -1,4 +1,11 @@
-## Hi there 👋
+# Presentazione 👋
+## Chi sono io? 👱‍♀️
+Mi chiamo **Martina**, ho 19 anni e frequento l'ultimo anno di scuola superiore indirizzo **liceo scienze applicate**. 📚
+Vivo a Monza con i miei genitori e mia sorella minore. Sono una ragazza gentile, ambiziosa ma anche molto testarda. Mi piace essere informata prima di fare una scelta e, anche se cerco sempre di essere il più oggettiva possibile, a volte l'impulsività prende il sopravvento, soprattuto nelle questioni di "cuore". Sono sempre disponibile se mi viene chiesto aiuto ma faccio fatica a chiederlo; mi piace essere indipendente e dimostrare le mie capacità. All'inizio sembro molto timida ma appena prendo confidenza divento un'altra persona. 🤗
+## Scuola 
+Frequentando il liceo, le materie sono principalmente teoriche e l'opzione scienze applicate comporta che le materie principali siano quelle improntate su competenze STEM: matematica, fisica, scienze e informatica. 
+Ho scelto di frequentare questo liceo proprio perchè sono le materie che più mi appassionano, in particolare la *matematica*. 📊
+Oltre a essere abbastanza portata, mi piace come mateira perchè basata sulla logica e su metodi rigorosi: essendo la matematica formata da teoremi e regole sempre valide mi viene più facile capire come gestire una situazione in quel determinato campo. 
 
 <!--
 **martinamantovani/martinamantovani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

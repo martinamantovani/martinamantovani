@@ -7,6 +7,7 @@ Vivo a Monza con i miei genitori e mia sorella minore. Sono una ragazza gentile,
 Frequentando il liceo, le materie sono principalmente teoriche e l'opzione scienze applicate comporta che le materie principali siano quelle improntate su competenze STEM: matematica, fisica, scienze e informatica.\
 Ho scelto di frequentare questo liceo proprio perchè sono le materie che più mi appassionano, in particolare la *matematica*. 📊\
 Oltre a essere abbastanza portata, mi piace come mateira perchè basata sulla logica e su metodi rigorosi: essendo la matematica formata da teoremi e regole sempre valide mi viene più facile capire come gestire una situazione in quel determinato campo. 
+
 <img width="275" height="183" alt="image" src="https://github.com/user-attachments/assets/6b07c640-89e6-4886-9e00-11d660d256d8" />
 
 ### Competenze e livello 

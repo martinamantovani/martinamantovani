@@ -1,6 +1,6 @@
 
 # 👋Chi sono io? 👱‍♀️
-Mi chiamo **Martina**, ho 19 anni e frequento l'ultimo anno di scuola superiore indirizzo **liceo scienze applicate**. 📚\
+Mi chiamo **Martina**, ho 19 anni e frequento l'ultimo anno di scuola superiore indirizzo **liceo scienze applicate**. 📚
 
 Vivo a Monza con i miei genitori e mia sorella minore. Sono una ragazza gentile, ambiziosa ma anche molto testarda. Mi piace essere informata prima di fare una scelta e, anche se cerco sempre di essere il più oggettiva possibile, a volte l'impulsività prende il sopravvento, soprattuto nelle questioni di "cuore". Sono sempre disponibile se mi viene chiesto aiuto ma faccio fatica a chiederlo; mi piace essere indipendente e dimostrare le mie capacità. All'inizio sembro molto timida ma appena prendo confidenza divento un'altra persona. 🤗
 ## Scuola 
@@ -18,7 +18,7 @@ Come certificazioni ho:
 Inoltre, durante gli ultimi tre anni di scuola, ho partecipato a progetti di orientamento e di PCTO, la vecchia alternanza scuola-lavoro, come incorntri con esperti o provare a lavorare in un'azienda per una settimana. 
 
 Se devo essere sincera imparare nuove nozioni non è sempre una sfida per me; ovviamente dipende da quanto mi piace e mi ispira un argomento ma, in genere, studiare e memorizzare mi viene abbastanza facile. \
-Questo non implica che io non faccia fatica; nonostante tutto, anche per me può risultare impegnativo, soprattutto dal punto di vista organizzativo a causa di altri impegni giornalieri. Per questo negli anni ho appurato il *metodo di studio* giusto per me per ottimizzare i tempi al meglio: leggere, sottolineare sul libro e ripetere ampliando con gli appunti presi in classe. \
+Questo non implica che io non faccia fatica; nonostante tutto, anche per me può risultare impegnativo, soprattutto dal punto di vista organizzativo a causa di altri impegni giornalieri. Per questo negli anni ho appurato il *metodo di studio* giusto per me per ottimizzare i tempi al meglio: leggere, sottolineare sul libro e ripetere ampliando con gli appunti presi in classe. 
 
 ## Hobby
 Adoro:

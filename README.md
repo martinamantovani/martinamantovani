@@ -26,14 +26,15 @@ Adoro:
 - vedere i film e le serie tv per immedesimarmi nelle storie e viaggiare con la fastasia 📽
 - provare nuovi cibi e nuovi ristoranti insieme al mio ragazzo 🍲❤
 - viaggiare e scoprire nuovi posti; adoro particolarmente le zone marittime 🏖
-- la *ginnastica artistica* che è sempre stato il mio sport preferito, quello che ho praticato fino ai 16 anni e che ora cerco di trasmetterne la passione ad altre bambine, ammaliate come lo ero io un tempo
+- la *ginnastica artistica* che è sempre stato il mio sport preferito, quello che ho praticato fino ai 16 anni e che ora cerco di trasmetterne la passione ad altre bambine, ammaliate come lo ero io un tempo.
+
 <img width="275" height="183" alt="image" src="https://github.com/user-attachments/assets/88d7f6a9-5e52-4215-bbf9-19cabf8b6482" />
 
 ## Obiettivi futuri 😎
-Una volta finito il liceo, vorrei iscrivermi alla facoltà di **ingegneria** al Politecnico di Milano dove spero di poter entrare a far parte del ramo civile. \
+Una volta finito il liceo, vorrei iscrivermi alla facoltà di **ingegneria** al Politecnico di Milano dove spero di poter entrare a far parte del ramo civile. Ovviamente ho già in mente un "piano b" in caso non si realizzi, ma spero proprio di riuscire nel mio intento. 🤞  \
 In un futuro vorrei quindi lavorare in questo campo e, perchè no, avere il successo meritato dopo i lunghi anni di studio che dovrò affrontare. 👩‍💼
 
 ### Lavoro oggi 
-Da un paio di anni ormai alleno in una palestra di ginnastica artistica. Ho iniziato ad allena i corsi base un paio di volte a settimana, passando ad allenare la promozionare maschile e femminile, fino ad allenare anche l'agonistica. Al momento alleno quattro volte a settimana. 🤸‍♀️\
-Proprio perchè spero di poter continuare a lavorare in questo ambito che ho iniziato dei corsi per poter diventare tecnico "ufficiale". 
+Da un paio di anni ormai alleno in una palestra di ginnastica artistica. Ho iniziato ad allenare i corsi base un paio di volte a settimana, passando ad allenare la promozionale maschile e femminile, fino ad allenare anche l'agonistica. Al momento alleno quattro volte a settimana. 🤸‍♀️\
+Proprio perchè spero di poter continuare a lavorare in questo ambito che ho iniziato dei corsi per poter diventare tecnico "ufficiale". Anche se mi occupa tanto tempo non è un'attività che mi pesa: la passione per questo sport supera la fatica. 
 
